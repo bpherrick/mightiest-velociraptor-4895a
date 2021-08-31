@@ -1,6 +1,6 @@
 ---
 title: About Us
-subtitle: This is a short page about me and my work
+subtitle: Love to be shared. Laughs to be had. Fun to be done.
 img_path: images/about.jpg
 seo:
   title: About Me
