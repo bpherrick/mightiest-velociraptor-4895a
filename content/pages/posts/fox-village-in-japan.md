@@ -40,6 +40,10 @@ seo:
       value: images/10.jpg
       relativeUrl: true
 layout: post
+excerpt: >-
+  Ya'll know the saying.... or some variation of it. I know you do. "Whenever
+  God closes a door, he opens a window". Well, that in a nutshell is how our God
+  journey began.
 ---
 Ya'll know the saying.... or some variation of it. I know you do. "Whenever God closes a door, he opens a window". Well, that in a nutshell is how our God journey began.
 
