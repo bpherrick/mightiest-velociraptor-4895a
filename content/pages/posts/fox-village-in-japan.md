@@ -3,7 +3,7 @@ title: Our God Journey
 subtitle: >-
   "When God closes a door, He opens a window, but it's up to you to find it".
   ~Jeanette Walls
-date: '2020-08-03'
+date: '2020-08-31'
 thumb_img_path: /images/kyle-cut-media-UrhglJ-2Q8M-unsplash-fcdf601e.jpg
 thumb_img_alt: A red fox sitting on a meadow
 content_img_path: /images/kyle-cut-media-UrhglJ-2Q8M-unsplash.jpg
