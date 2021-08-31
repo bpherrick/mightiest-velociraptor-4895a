@@ -61,4 +61,4 @@ We had been praying for clarity, God's will and for our obedience to His will. E
 
 Doors opened.
 
-Now, we are excitedly preparing ourselves for serving the people of Egoli who are living in abject poverty just outside of Cape Town, South Africa and then with refugees that have fled to Athens, Greece.
+Now, we are excitedly preparing ourselves for serving the people of Egoli who are living in abject poverty just outside of Cape Town, South Africa and then with refugees that have fled to Athens, Greece. 
