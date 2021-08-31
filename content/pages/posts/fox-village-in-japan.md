@@ -1,8 +1,8 @@
 ---
 title: Our God Journey
 subtitle: >-
-  Apparently, Japan is covered in magical and irresistibly cute animal
-  sanctuaries.
+  "When God closes a door, He opens a window, but it's up to you to find it".
+  ~Jeanette Walls
 excerpt: >-
   Apparently, Japan is covered in magical and irresistibly cute animal
   sanctuaries. The Shrines of Ise have been celebrated as the prototype of
