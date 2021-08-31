@@ -42,6 +42,6 @@ We are excited to be partnering with the International Sports Federation (ISF) a
 
 We leave for Cape Town, South Africa on January 19th 2022. We will spend 3 months serving there. We will return to the States for 3 weeks in April and then head onto Athens, Greece for an additional 3 months. We have been invited to serve in other European contexts if funds allow.
 
-We highly encourage you to check out our website HerricksOnMission.com. This is where you will be able to give a monetary gift that will allow us to go and serve on the ground in these communities. All donations are 100% tax deductible.  \*\*
+We highly encourage you to check out our website HerricksOnMission.com. This is where you will be able to give a monetary gift that will allow us to go and serve on the ground in these communities. All donations are 100% tax deductible.  
 
 ***
