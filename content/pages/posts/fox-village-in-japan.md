@@ -53,7 +53,7 @@ Fortunately, we have amazing parents. They all have helped us navigate through o
 
 Door closed.
 
-Simultaneously whilst all this house hunting is happening, Ben was job hunting. His job is contracted and we had no guarantees if it would continue into the following year. There were several promising opportunities. One, in particular stands out. We were under the impression that he was a shoe-in for the position. Although everything seemed really promising, Ben wasn't 100% sure that if he was offered the position that he wanted to take it. But the earning potential was....well, a lot. The cost to the earning potential was the amount of time it would take Ben away from home and our family time. The decision ended up being made for us. It came down to Ben and one other candidate...experience won out and the other candidate got the position.
+Simultaneously whilst all this house hunting was happening, Ben was job hunting. His job was contracted and we had no guarantees if it would continue into the following year. There were several promising opportunities. One, in particular stands out. We were under the impression that he was a shoe-in for the position. Although everything seemed really promising, Ben wasn't 100% sure that if he was offered the position that he wanted to take it. But the earning potential was....well, a lot. The cost to that earning potential was the amount of time it would take Ben away from home and our family time. The decision ended up being made for us. It came down to Ben and one other candidate...experience won out and the other candidate got the position.
 
 Door closed.
 
