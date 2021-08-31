@@ -1,8 +1,8 @@
 ---
 title: About Us
 subtitle: >-
-  Mark 16:15 He said to them, "Go into all the world and preach the gospel to
-  all creation".
+  He said to them, "Go into all the world and preach the gospel to all
+  creation". Mark 16:15
 img_path: /images/wp2007438-cape-town-wallpapers.jpg
 seo:
   title: About Me
