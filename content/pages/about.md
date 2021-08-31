@@ -1,7 +1,7 @@
 ---
 title: About Us
 subtitle: Love to be shared. Laughs to be had. Fun to be done.
-img_path: images/about.jpg
+img_path: /images/wp2007438-cape-town-wallpapers.jpg
 seo:
   title: About Me
   description: A page about me and my work
