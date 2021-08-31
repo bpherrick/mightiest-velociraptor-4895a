@@ -1,6 +1,6 @@
 ---
 title: About Us
-subtitle: Love to be shared. Laughs to be had. Fun to be done.
+subtitle: Input bible verse.
 img_path: /images/wp2007438-cape-town-wallpapers.jpg
 seo:
   title: About Me
