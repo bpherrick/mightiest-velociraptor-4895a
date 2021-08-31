@@ -32,7 +32,7 @@ layout: page
 ---
 **Hello there!**
 
-\*\*We are Ben, Paige and Josephine Grace (JoJo) Herrick. Welcome to our blog! Grab a cup of coffee or tea, get in a comfy chair and let's visit a while.
+We are Ben, Paige and Josephine Grace (JoJo) Herrick. Welcome to our blog! Grab a cup of coffee or tea, get in a comfy chair and let's visit a while.
 
 For those of you unfamiliar with us, we hail from Missouri. Ben and I have been married just over 2 years and our little JoJo will soon be celebrating her first birthday!
 
