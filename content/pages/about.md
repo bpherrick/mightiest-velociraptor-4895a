@@ -34,7 +34,7 @@ layout: page
 ---
 **Hello there!**
 
-We are Ben, Paige and Josephine Grace (JoJo) Herrick. Welcome to our blog! Grab a cup of coffee or tea, get in a comfy chair and let's visit a while.
+We are Ben, Paige and Josephine Grace (JoJo) Herrick. Welcome to our blog! BenandPaigeHerrick.com is where we will keep you updated on what is going on in our ministry. Grab a cup of coffee or tea, get in a comfy chair and let's visit a while.
 
 For those of you unfamiliar with us, we hail from Missouri. Ben and I have been married just over 2 years and our little JoJo will soon be celebrating her first birthday!
 
@@ -44,6 +44,6 @@ We are excited to be partnering with the International Sports Federation (ISF) a
 
 We leave for Cape Town, South Africa on January 19th 2022. We will spend 3 months serving there. We will return to the States for 3 weeks in April and then head onto Athens, Greece for an additional 3 months. We have been invited to serve in other European contexts if funds allow.
 
-We highly encourage you to check out our donation website HerricksOnMission.com. This is where you will be able to give a monetary gift that will allow us to go and serve on the ground in these communities. All donations are 100% tax deductible.
+We highly encourage you to check out our donation website, HerricksOnMission.com. This is where you will be able to give a monetary gift that will allow us to go and serve on the ground in these communities. All donations are 100% tax deductible.
 
 ***
