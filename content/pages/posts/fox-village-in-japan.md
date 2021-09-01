@@ -41,8 +41,8 @@ seo:
       relativeUrl: true
 layout: post
 excerpt: >-
-  Ya'll know the saying.... or some variation of it. I know you do. "Whenever
-  God closes a door, he opens a window". Well, that in a nutshell is how our God
+  Most of ya'll have heard the saying.... or some variation of it, "Whenever God
+  closes a door, he opens a window". Well, that in a nutshell, is how our God
   journey began.
 ---
 Most of ya'll have probably heard the saying....or some variation of it,  "Whenever God closes a door, he opens a window". Well, that in a nutshell, is how our God journey began.
