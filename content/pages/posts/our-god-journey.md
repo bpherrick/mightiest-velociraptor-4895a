@@ -13,6 +13,7 @@ seo:
   extra: []
   type: stackbit_page_meta
 layout: post
+excerpt: "Most of you know the saying...or some variation of it. \"Whenever God closes a door, He opens a window\". Well, that in a nutshell is how our God journey began.\_"
 ---
 ##### Most of you know the saying...or some variation of it. "Whenever God closes a door, He opens a window". Well, that in a nutshell is how our God journey began. 
 
