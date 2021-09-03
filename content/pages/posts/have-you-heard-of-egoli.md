@@ -19,7 +19,6 @@ I honestly hadn't until we partnered with the International Sports Federation (I
 
 Let's briefly look at what abject poverty means. Poverty is the state of being extremely poor. Abject is used to emphasize a situation or quality that is extremely bad. One word that I saw over and over on my search of the word abject was this, "hopeless". 
 
-
 I don't want to leave you at hopeless. Cue in Pastor Brian Keet, his wife Glenda and the Tekiah Church. These incredible people are who we will be working with during our time in South Africa. Pastor Brian and his church saw great need and have set out to give these people hope. Thus the Mountain View Dream Centre was born. The Dream Centre is a dream in progress with many dreams having come to fruition and more dreams yet to be fulfilled. Ben, JoJo and I will be going to assist Pastor Brian and the Tekiah Church with their mission to combat poverty and give the children and people of Egoli a better tomorrow. 
 
 Become a part of this journey with us. Visit our donation website, Herricksonmission.com to donate. All donations are 100% tax deductible.
