@@ -14,6 +14,7 @@ seo:
   type: stackbit_page_meta
 layout: post
 excerpt: "Most of you know the saying...or some variation of it. \"Whenever God closes a door, He opens a window\". Well, that in a nutshell is how our God journey began.\_"
+content_img_path: /images/South Africa pic.jfif
 ---
 ##### Most of you know the saying...or some variation of it. "Whenever God closes a door, He opens a window". Well, that in a nutshell is how our God journey began. 
 
