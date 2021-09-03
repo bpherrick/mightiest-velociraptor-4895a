@@ -1,5 +1,5 @@
 ---
-title: lorem-ipsum
+title: What and who is Egoli?
 subtitle: lorem-ipsum
 date: '2021-09-03'
 thumb_img_alt: lorem-ipsum
