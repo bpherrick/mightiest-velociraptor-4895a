@@ -11,7 +11,6 @@ seo:
   extra: []
   type: stackbit_page_meta
 layout: post
-excerpt: Have you heard of Egoli?
 ---
 ## Have you heard of Egoli? 
 
