@@ -23,7 +23,7 @@ We had been renting a duplex since we got married. When our daughter was about 2
 
 Doors Closed.
 
-Simultaneous to our house hunt, Ben was on the job hunt. His job was contracted and we had no idea if the contract would be renewed for the following year. There were several good leads. One in particular stands out in my mind. We were under the impression that Ben was practically a shoe-in for the position. He went through several rounds of interviews. There was only one *minor* issue. Ben wasn't sure that even if he was offered the position that he would want to take it. The earning potential for this job was....well, a lot. The cost to that earning potential was the amount of time he would have to sacrifice with his family. It came down to the final interview, Ben and one other applicant. Experience won out and the other applicant got the job. 
+Simultaneous to our house hunt, Ben was on the job hunt. His job was contracted and we had no idea if the contract would be renewed for the following year. There were several good leads. One in particular stands out in my mind. We were under the impression that Ben was practically a shoe-in for the position. He went through several rounds of interviews. There was only one *minor* issue. Ben wasn't sure that even if he was offered the position that he would want to take it. The earning potential for this job was....well, a lot. The cost to that earning potential was the amount of time he would have to sacrifice with our family. It came down to the final interview, Ben and one other applicant. Experience won out and the other applicant got the job. 
 
 Doors Closed. 
 
