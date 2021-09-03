@@ -1,6 +1,8 @@
 ---
 title: Our God Journey
-subtitle: lorem-ipsum
+subtitle: >-
+  "When God closes a door, he opens a window, but it's up to you to find it". -
+  Jeanette Walls
 date: '2021-09-03'
 thumb_img_alt: lorem-ipsum
 excerpt: lorem-ipsum
