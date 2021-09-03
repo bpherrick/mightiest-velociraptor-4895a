@@ -31,13 +31,13 @@ In the midst of all that chaos, Ben had reconnected with an old friend who serv
 
 Windows opened. 
 
-We will be heading for Cape Town, South Africa on January 19, 2022. We will spend 3 months in South Africa working with those living in abject poverty. We will come home for 3 weeks and regroup. Then we will head to Athens, Greece for 3 months where we will work with forcibly displaced refugees.
+We embark for Cape Town, South Africa on January 19, 2022, where we will be working with those living in abject poverty. We will come home for 3 weeks and regroup. Then onto Athens, Greece for 3 months where we will work with forcibly displaced refugees.
 
 We have met our first fundraising goal of raising $5,000.00 by 9/1/2021! Praise God for that! We encourage you to check out our sister site Herricksonmission.com to donate. All donations are 100% tax deductible. All of the funds raised go directly to our family so that we may go and be a blessing to the impoverished and the displaced. 
 
 Our next fundraising goal is $15,000.00 by October 1st! Let's keep the momentum going!!!
 
-From the bottom of our hearts we thank you for your generosity! 
+From the bottom of our hearts, we thank you for your generosity! 
 Love and Blessings to each of you.
 
 \~Paige
