@@ -31,7 +31,7 @@ In the midst of all that chaos, Ben had reconnected with an old friend who serv
 
 Windows opened. 
 
-We embark for Cape Town, South Africa on January 19, 2022, where we will be working with those living in abject poverty. We will come home for 3 weeks and regroup. Then onto Athens, Greece for 3 months where we will work with forcibly displaced refugees.
+We are partnering with the International Sports Federation and will embark for Cape Town, South Africa on January 19, 2022. There we will be working with those living in abject poverty. After our 3 months in Cape Town, we will come home for 3 weeks and regroup. Then onto Athens, Greece for 3 months where we will work with forcibly displaced refugees. If funds allow, we have been invited to visit other European contexts in the summer of 2022.
 
 We have met our first fundraising goal of raising $5,000.00 by 9/1/2021! Praise God for that! We encourage you to check out our sister site Herricksonmission.com to donate. All donations are 100% tax deductible. All of the funds raised go directly to our family so that we may go and be a blessing to the impoverished and the displaced. 
 
