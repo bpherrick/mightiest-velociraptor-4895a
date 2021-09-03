@@ -14,6 +14,7 @@ layout: post
 excerpt: >-
   Have you heard of Egoli? I honestly hadn't until we partnered with the
   International Sports Federation (ISF). 
+thumb_img_path: /images/DLD_2309.JPG
 ---
 ## Have you heard of Egoli? 
 
