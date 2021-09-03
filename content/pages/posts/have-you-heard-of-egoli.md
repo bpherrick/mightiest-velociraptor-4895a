@@ -16,7 +16,7 @@ excerpt: >-
   International Sports Federation (ISF). 
 thumb_img_path: /images/DLD_2339.JPG
 ---
-## Have you heard of Egoli? 
+## ![](/images/DLD\_2339-131f8d8c.JPG)![](/images/DLD\_2390.JPG)Have you heard of Egoli? 
 
 I honestly hadn't until we partnered with the International Sports Federation (ISF). I decided to do a quick google search and typed in "Egoli, South Africa". I kid you not, the first thing that popped up was a Soap Opera called, "Egoli: Place of Gold". Honestly, not at all what I expected to pop up. Egoli is also an alternative name for Johannesburg. Interesting, but still not what I was expecting to find. What I was looking for is located on the outskirts of Cape Town, South Africa at the foot of Table Mountain. This is where you will find a squatter camp where twenty-five thousand people are crammed in the equivalent of 2 city blocks living in abject poverty. Sixty percent of the population in Egoli are under the age of 14 years old. Many of these children are orphaned and have no one to care for them.
 
