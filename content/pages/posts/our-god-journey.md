@@ -23,7 +23,7 @@ We had been renting a duplex since we got married. When our daughter was about 2
 
 Doors Closed.
 
-Simultaneous to our house hunt, Ben was on the job hunt. His job was contracted and we had no idea if the contract would be renewed for the following year. There were several good leads. One in particular stands out in my mind. We were under the impression that Ben was practically a shoe-in for the position. He went through several rounds of interviews. There was only one *minor* issue. Ben wasn't sure that even if he was offered the position that he would want to take it. The earning potential for this job was....well, a lot. The cost to that earning potential was the amount of time he would have to sacrifice with our family. It came down to the final interview, Ben and one other applicant. Experience won out and the other applicant got the job. 
+Simultaneous to our house hunt, Ben was on the job hunt. His job was contracted and we had no idea if the contract would be renewed for the following year. There were several good leads. Over and over he made it to the final interview. None of them ended with a job offer for us. Fortunately, Ben's contract was extended and God has provided an income until we leave in January. 
 
 Doors Closed. 
 
@@ -33,9 +33,9 @@ Windows opened. 
 
 We are partnering with the International Sports Federation and will embark for Cape Town, South Africa on January 19, 2022. There we will be working with those living in abject poverty. After our 3 months in Cape Town, we will come home for 3 weeks and regroup. Then onto Athens, Greece for 3 months where we will work with forcibly displaced refugees. If funds allow, we have been invited to visit other European contexts in the summer of 2022.
 
-We have met our first fundraising goal of raising $5,000.00 by 9/1/2021! Praise God for that! We encourage you to check out our sister site Herricksonmission.com to donate. All donations are 100% tax deductible. All of the funds raised go directly to our family so that we may go and be a blessing to the impoverished and the displaced. 
+We have met our first fundraising goal of raising $5,000.00 by 9/1/2021! Praise God for that! We encourage you to check out our sister site Herricksonmission.com to donate. This is where you will be able to give a monetary gift that will allow us to go and serve on the ground in these communities. All donations are 100% tax deductible.
 
-Our next fundraising goal is $15,000.00 by October 1st! Let's keep the momentum going!!!
+Our next fundraising goal is $15,000.00 by October 1, 2021. Let's keep the momentum going!!!
 
 From the bottom of our hearts, we thank you for your generosity! 
 Love and Blessings to each of you.
