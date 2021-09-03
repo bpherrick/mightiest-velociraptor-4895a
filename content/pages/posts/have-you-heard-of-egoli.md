@@ -11,6 +11,9 @@ seo:
   extra: []
   type: stackbit_page_meta
 layout: post
+excerpt: >-
+  Have you heard of Egoli? I honestly hadn't until we partnered with the
+  International Sports Federation (ISF). 
 ---
 ## Have you heard of Egoli? 
 
