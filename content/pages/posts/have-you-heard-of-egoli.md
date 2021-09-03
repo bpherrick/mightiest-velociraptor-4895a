@@ -3,7 +3,6 @@ title: What is Egoli?
 subtitle: '"The light shines in the darkness, and darkness has not overcome it". John 1:5'
 date: '2021-09-03'
 thumb_img_alt: lorem-ipsum
-excerpt: lorem-ipsum
 hide_header: false
 seo:
   title: ''
