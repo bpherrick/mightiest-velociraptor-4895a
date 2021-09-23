@@ -10,7 +10,7 @@ seo:
   robots: []
   extra: []
 layout: post
-subtitle: '"Truly'
+subtitle: '"Truly I tell you '
 ---
 ## Lorem ipsum
 
