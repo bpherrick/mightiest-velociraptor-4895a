@@ -13,6 +13,7 @@ subtitle: >-
   "For I know the plans I have for you declares the Lord. Plans to prosper you
   and not to harm you, plans to give you a hope and a future". ~Jeremiah 29:11
 thumb_img_path: /images/DLD_2462.JPG
+content_img_path: /images/mvdc-air2.jpg
 ---
 ## Lorem ipsum
 
