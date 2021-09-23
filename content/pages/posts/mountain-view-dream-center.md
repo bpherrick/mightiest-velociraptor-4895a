@@ -15,7 +15,7 @@ thumb_img_path: /images/DLD_2462.JPG
 content_img_path: /images/mvdc-air2.jpg
 excerpt: >-
   "I love to tell the storry. Of unseen things above, Of Jesus and His glory, of
-  Jesus and His love. I love to tell the story, Because I know 
+  Jesus and His love. I love to tell the story, Because I know 'tis true
 ---
 ## Lorem ipsum
 
