@@ -10,7 +10,7 @@ seo:
   robots: []
   extra: []
 layout: post
-subtitle: 'For I know the plans I have for you '
+subtitle: For I know the plans I have for you declares the Lord
 ---
 ## Lorem ipsum
 
