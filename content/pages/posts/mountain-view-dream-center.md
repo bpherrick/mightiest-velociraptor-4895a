@@ -10,7 +10,9 @@ seo:
   robots: []
   extra: []
 layout: post
-subtitle: For I know the plans I have for you declares the Lord
+subtitle: >-
+  For I know the plans I have for you declares the Lord. Plans to prosper you
+  and not to harm you
 ---
 ## Lorem ipsum
 
