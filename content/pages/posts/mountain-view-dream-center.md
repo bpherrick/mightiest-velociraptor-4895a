@@ -1,7 +1,6 @@
 ---
 title: The Mountain View Dream Centre
 date: '2021-09-23'
-excerpt: lorem-ipsum
 hide_header: false
 seo:
   title: ''
