@@ -10,6 +10,7 @@ seo:
   robots: []
   extra: []
 layout: post
+subtitle: 'For I know the plans I have '
 ---
 ## Lorem ipsum
 
