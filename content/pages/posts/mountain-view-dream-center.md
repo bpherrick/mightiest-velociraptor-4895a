@@ -10,7 +10,9 @@ seo:
   robots: []
   extra: []
 layout: post
-subtitle: '"Truly I tell you, whatever you did for one of the least of these'
+subtitle: >-
+  "Truly I tell you, whatever you did for one of the least of these brothers and
+  sisters of mine
 ---
 ## Lorem ipsum
 
