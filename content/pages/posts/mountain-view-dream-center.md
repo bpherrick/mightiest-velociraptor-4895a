@@ -10,9 +10,6 @@ seo:
   robots: []
   extra: []
 layout: post
-subtitle: >-
-  "Truly I tell you, whatever you did for one of the least of these brothers and
-  sisters of mine, you did for me". ~Matthew 25:40-45
 ---
 ## Lorem ipsum
 
