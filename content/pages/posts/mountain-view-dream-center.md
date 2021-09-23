@@ -13,7 +13,9 @@ subtitle: >-
   and not to harm you, plans to give you a hope and a future". ~Jeremiah 29:11
 thumb_img_path: /images/DLD_2462.JPG
 content_img_path: /images/mvdc-air2.jpg
-excerpt: '"I love to tell the storry. Of unseen things above, Of Jesus and His glory, '
+excerpt: >-
+  "I love to tell the storry. Of unseen things above, Of Jesus and His glory, of
+  Jesus and His love. I love to tell the story
 ---
 ## Lorem ipsum
 
