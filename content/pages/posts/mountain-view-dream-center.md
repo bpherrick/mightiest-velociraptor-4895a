@@ -12,7 +12,7 @@ seo:
 layout: post
 subtitle: >-
   For I know the plans I have for you declares the Lord. Plans to prosper you
-  and not to harm you, plans to give you a hope and a future
+  and not to harm you, plans to give you a hope and a future. 
 ---
 ## Lorem ipsum
 
