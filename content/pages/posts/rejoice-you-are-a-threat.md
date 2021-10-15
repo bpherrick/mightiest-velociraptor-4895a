@@ -11,7 +11,7 @@ seo:
   extra: []
 layout: post
 ---
-***"Rejoice, you are a threat." Interesting choice for a family motto, eh?***
+*"Rejoice, you are a threat." Interesting choice for a family motto, eh?*
 
 That's not exactly a phrase you hear everyday. But it's been Paige, Jojo, and I's enduring family motto for the last several months. 
 When Paige and I made the commitment to serve in South Africa and Greece with the International Sports Federation, a wealth of emotions ensued. Excitement, nervousness, anticipation, worries, fears, questions, and peace all swirled about. The key one there in that list is peace. We have been learning that amongst the chaos, peace can not only survive, it can thrive. Now how the heck does that make sense? 
