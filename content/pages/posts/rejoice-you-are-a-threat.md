@@ -2,7 +2,6 @@
 title: Rejoice! You are a Threat!
 date: '2021-10-15'
 thumb_img_alt: lorem-ipsum
-excerpt: lorem-ipsum
 hide_header: false
 seo:
   title: ''
