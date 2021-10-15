@@ -1,5 +1,5 @@
 ---
-title: Rejoice! You Are a Threat.
+title: 'Rejoice, You Are a Threat.'
 subtitle: '"Rejoice, you are a threat". Interesting choice for a family motto, eh?'
 seo:
   title: ''
