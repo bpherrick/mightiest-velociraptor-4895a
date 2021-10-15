@@ -9,7 +9,7 @@ seo:
   robots: []
   extra: []
 layout: post
-excerpt: '"Rejoice, you are a threat". Not '
+excerpt: '"Rejoice, you are a threat". Interesting choice'
 ---
 *"Rejoice, you are a threat." Interesting choice for a family motto, eh?*
 
