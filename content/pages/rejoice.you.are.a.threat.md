@@ -1,6 +1,6 @@
 ---
 title: Rejoice! You Are a Threat.
-subtitle: lorem-ipsum
+subtitle: '"Rejoice, you are a threat". Interesting choice for a family motto, eh?'
 seo:
   title: ''
   description: ''
