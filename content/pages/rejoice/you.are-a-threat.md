@@ -1,5 +1,5 @@
 ---
-title: 'Rejoice! '
+title: 'Rejoice! You '
 subtitle: lorem-ipsum
 seo:
   title: ''
