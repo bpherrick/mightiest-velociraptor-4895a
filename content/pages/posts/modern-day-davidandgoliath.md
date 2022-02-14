@@ -28,5 +28,4 @@ We welcome you to partner with us and become an active participant in this unfol
 
 To donate, go to our donations page: [herricksonmission.com](https://l.facebook.com/l.php?u=http%3A%2F%2Fherricksonmission.com%2F%3Ffbclid%3DIwAR2WQFyHkja4VXRgcFvCYs94nerdxDR_dKT1ofMGtfV2SsiNhb6aML5EWa4\&h=AT094Owvw4ujLwSThUsGlMkx2Cwkqd2\_JaIukf5Lsl_Pmwko_rmH9iAJnK-ex9MN6059to8\_JM18uf-4bnfbOfyfLqgintyb6LEARJhWoErNutDQtutF_suRFn50x0iHGqY7h5ozNRHxpj4&\__tn\_\_=-UK-R\&c\[0]=AT0EsldNMQItdVlxipHUZWf_P2d6DiFdDigerRH2ua7CpuAfEa8dmVdzHKqpDDvEfK1dcls-v9QByb-30v_a875IPNCQ6WZn8s6tStzv4wbyt3BXhn5fd_A-60w0VEAc3QEXF4NuA6Or90jo7dEgVtSyjfo)
 
-![Placeholder Image](https://assets.stackbit.com/components/images/default/post-4.jpeg)
-
+![Placeholder Image](https://assets.stackbit.com/components/images/default/post-4.jpeg)![](/images/273073454\_967203553917526\_7608093689432859594\_n.jpg)
