@@ -1,5 +1,5 @@
 ---
-title: lorem-ipsum
+title: A Modern Day David & Goliath
 subtitle: lorem-ipsum
 date: '2022-02-14'
 thumb_img_alt: lorem-ipsum
