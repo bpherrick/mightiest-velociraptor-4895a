@@ -1,6 +1,8 @@
 ---
 title: A Modern Day David & Goliath
-subtitle: lorem-ipsum
+subtitle: >-
+  Just like in David and Goliath, the Keets are overcoming what seems
+  impossible.
 date: '2022-02-14'
 thumb_img_alt: lorem-ipsum
 excerpt: lorem-ipsum
