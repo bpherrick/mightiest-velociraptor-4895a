@@ -5,7 +5,6 @@ subtitle: >-
   impossible.
 date: '2022-02-14'
 thumb_img_alt: lorem-ipsum
-excerpt: lorem-ipsum
 hide_header: false
 seo:
   title: ''
