@@ -42,7 +42,7 @@ So, how did we come to be entering the missions field? Well, missions is somethi
 
 We are excited to be partnering with the International Sports Federation (ISF) and the local churches to aide the impoverished in Cape Town, South Africa and the forcibly displaced refugees in Athens, Greece.
 
-We leave for Cape Town, South Africa in April 2022. We will spend 2 months serving there. We wiwill then head onto Athens, Greece for 1 month. We have been invited to serve in other European contexts if funds allow.
+We leave for Cape Town, South Africa in April 2022. We will spend 2 months serving there. We will then head onto Athens, Greece for 1 month. We have been invited to serve in other European contexts if funds allow.
 
 We highly encourage you to check out our donation website, HerricksOnMission.com. This is where you will be able to give a monetary gift that will allow us to go and serve on the ground in these communities. All donations are 100% tax deductible.
 
