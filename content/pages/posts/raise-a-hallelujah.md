@@ -9,6 +9,9 @@ seo:
   extra: []
 layout: post
 subtitle: 'I will sing to the Lord, because He has dealt bountifully with me. Psalm 13:6'
+excerpt: >-
+  God is so faithful and oh so good! He provides for our every need.
+  (Philippians 4:19).
 ---
 God is so faithful and oh so good! He provides for our every need. (Philippians 4:19). Ben and I are excited to share that God has provided through your giving! Our March 15th financial deadline was met on March 13th! Currently, 75% of the funds required for our vision trip to South Africa and Greece have been raised. Praise be to God!
 
