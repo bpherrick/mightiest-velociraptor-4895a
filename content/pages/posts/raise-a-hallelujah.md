@@ -1,7 +1,6 @@
 ---
 title: Raise A Hallelujah
 date: '2022-03-18'
-thumb_img_alt: lorem-ipsum
 excerpt: lorem-ipsum
 hide_header: false
 seo:
