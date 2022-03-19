@@ -11,10 +11,11 @@ seo:
 layout: post
 subtitle: 'I will sing to the Lord, because He has dealt bountifully with me. Psalm 13:6'
 ---
+God is so faithful and oh so good! He provides for our every need. (Philippians 4:19). Ben and I are excited to share that God has provided through your giving! Our March 15th financial goal deadline was met on March 13th! Currently, 75% of the funds required for our vision trip to South Africa and Greece have been raised. Praise be to God!
 
+Our next financial goal deadline is set for April 15th. We look forward to how God moves in the coming months. 
 
-![Placeholder Image](https://assets.stackbit.com/components/images/default/post-4.jpeg)
+If funds allow, we have opportunities to serve refugees in France and Italy following our service in South Africa and Greece. We were just informed today of opportunities to serve Ukranian refugees in Ireland and Poland as well. We are praying by faith that God will open doors that no man can shut and allow us to serve His kingdom in each of these capacities. (2 Corinthians 9:8).
 
-In malesuada sed urna eget vehicula. Donec fermentum tortor sit amet nisl elementum fringilla. Pellentesque dapibus suscipit faucibus. Nullam malesuada sed urna quis rutrum. Donec facilisis lorem id maximus mattis. Vestibulum quis elit magna. Vestibulum accumsan blandit consequat. Phasellus quis posuere quam.
+Please continue to keep us in your prayers! We are so incredibly thankful and blessed by each of your prayers and financial giving. May God bless and keep each of you. 
 
-Vivamus mollis in tellus ac ullamcorper. Vestibulum sit amet bibendum ipsum, vitae rutrum ex. Nullam cursus, urna et dapibus aliquam, urna leo euismod metus, eu luctus justo mi eget mauris. Proin felis leo, volutpat et purus in, lacinia luctus eros. Pellentesque lobortis massa scelerisque lorem ullamcorper, sit amet elementum nulla scelerisque. In volutpat efficitur nulla, aliquam ornare lectus ultricies ac. Mauris sagittis ornare dictum. Nulla vel felis ut purus fermentum pretium. Sed id lectus ac diam aliquet venenatis. Etiam ac auctor enim. Nunc velit mauris, viverra vel orci ut, egestas rhoncus diam. Morbi scelerisque nibh tellus, vel varius urna malesuada sed. Etiam ultricies sem consequat, posuere urna non, maximus ex. Mauris gravida diam sed augue condimentum pulvinar vel ac dui. Integer vel convallis justo.
